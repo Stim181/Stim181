@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Stim181
+- 👀 I’m interested in Soccer and coding
+- 🌱 I’m currently learning Java
+- 📫 How to reach me rarauz81@gmail.com
